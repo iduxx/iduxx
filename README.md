@@ -9,5 +9,5 @@ Here are some ideas to get you started:
 - 🤔 喜欢折腾
 - 💬 [<u>我的博客</u>](http://dududududu.cn:327/)
 - 📫 duxxya@gmail.com
-- ⚡️[<u>随机小姐姐</u>](http://dududududu.cn:327/sjxjj)
+- ⚡️ [<u>随机小姐姐</u>](http://dududududu.cn:327/sjxjj)
 
